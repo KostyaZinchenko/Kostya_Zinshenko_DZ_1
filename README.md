@@ -1,1 +1,1 @@
-# Kostya_Zinshenko_DZ_1
+# Kostya_Zinchenko_DZ_1
